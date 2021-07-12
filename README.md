@@ -1,4 +1,4 @@
-- Hi, I’m @DiamondOSDev. Some guy took my name so I had to use a different one.
+- I am Ely, and I am doing useful stuff. Well, for a limited amount of useful.
 - I’m interested in computery stuff. And some games, they're kinda fun at times lol
 - I’m currently studying CS. It's going good so far.
 - How to reach me? Message me on https://vk.com/thatmightyguy
