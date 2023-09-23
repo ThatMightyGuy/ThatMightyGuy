@@ -1,4 +1,1 @@
-- I am Ely, and I am doing useful stuff. Well, for a given amount of useful.
-- I’m interested in computery stuff. And some games, who am I lying to.
-- I’m studying CS. It's going good so far.
-- How to reach me? Message me on https://vk.com/thatmightyguy
+My name is Ely, and I am making stuff I find interesting. Well, for a given amount of interesting. 
