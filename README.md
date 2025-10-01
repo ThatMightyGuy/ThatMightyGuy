@@ -1,1 +1,1 @@
-My name is Ely, and I am making stuff I find interesting. Well, for a given amount of interesting. 
+CS undergrad, most of my projects aren't related to that though. They *are* probably related to Minecraft in some way.
